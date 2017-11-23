@@ -1,0 +1,1 @@
+Miscellany about QUANT
